@@ -1,1 +1,1 @@
-[My blog](https://won369369.github.io/)
+Blog: [Modality of meaning](https://won369369.github.io/)
